@@ -41,8 +41,7 @@ SD-Steel boasts over two decades of experience in the steel industry. We pride o
 
 **Contact Us:**
 
-For more information or to place an order, please contact us at +65 83016969 or visit our website at www.sd-steel.com.
-
+For more information or to place an order, please contact us at +65 83016969
 ![Image](https://github.com/user-attachments/assets/2567258e-e124-4816-932d-1809bd27ef0b)
 
 **SD-Steel - Your Trusted Partner in High-Quality Stainless Steel Products!**
