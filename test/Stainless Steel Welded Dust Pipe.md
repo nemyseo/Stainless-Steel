@@ -37,8 +37,7 @@ A: Yes, our pipes come with pre-drilled holes and smooth edges, making installat
 A: Absolutely! We can customize the length, diameter, and wall thickness based on your specific requirements.
 
 **Q: How do I contact your sales team?**
-A: For any inquiries or orders, please feel free to call us at +65 83016969 or visit our website at www.sd-steel.com.
-
+A: For any inquiries or orders, please feel free to call us at +65 83016969 
 Choose SD-Steel for reliable and efficient Stainless Steel Welded Dust Pipes. Contact us today to place your order!
 
 ---
