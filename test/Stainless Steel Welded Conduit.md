@@ -35,7 +35,7 @@ SD-Steel is a leading manufacturer with over 20 years of experience in the steel
 A: Our conduit is made from premium AISI 304 stainless steel, ensuring superior corrosion resistance and durability. It is also available in multiple diameters and lengths to meet diverse project requirements.
 
 **Q: How can I place an order?**
-A: You can place an order by contacting us at +65 83016969 or via email at sales@sd-steel.com. Our friendly sales team will assist you with your purchase.
+A: You can place an order by contacting us at +65 83016969 
 
 **Q: Can you provide custom sizes?**
 A: Yes, we offer customization services to meet specific project needs. Please contact us to discuss your requirements.
