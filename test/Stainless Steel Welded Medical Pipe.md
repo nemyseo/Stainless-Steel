@@ -45,4 +45,4 @@ A3: The electropolished finish makes these pipes easy to clean and sterilize. Re
 
 ![Image](https://github.com/user-attachments/assets/2567258e-e124-4816-932d-1809bd27ef0b)
 
-For further inquiries, please contact us at +65 83016969 or visit our website at www.sd-steel.com.
+For further inquiries, please contact us at +65 83016969 
