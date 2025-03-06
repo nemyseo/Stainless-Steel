@@ -50,8 +50,6 @@ A3: Yes, we can accommodate custom orders. Please contact us for more details.
 
 ## Contact Us
 
-For further inquiries or to place an order, please reach out to us at +65 83016969 or visit our website at www.sd-steel.com. We look forward to serving you!
-
----
+For further inquiries or to place an order, please reach out to us at +65 83016969 
 
 SD-Steel - Your Trusted Partner in Stainless Steel Solutions!
