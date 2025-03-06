@@ -48,13 +48,11 @@ A: Yes, we can customize the pipes according to your specific requirements. Plea
 **Q: How do I place an order?**
 A: You can place an order by contacting our sales team at +65 83016969 or via email at sales@sd-steel.com.
 
-Visit us at [SD-Steel Website](http://www.sd-steel.com/) for more information and to explore our full range of products.
 
 **Contact Us**
 
 For any inquiries or orders, please reach out to us at:
 - **Phone:** +65 83016969
-- **Email:** sales@sd-steel.com
-- **Website:** www.sd-steel.com
+
 
 Choose SD-Steel for reliable, high-quality 444 Stainless Steel Welded Pipes that meet your exact specifications.
