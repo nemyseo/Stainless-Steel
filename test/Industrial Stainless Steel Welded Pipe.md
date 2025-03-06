@@ -45,7 +45,7 @@ A2: Yes, we offer customization services to meet specific project needs. Contact
 A3: Absolutely! All our products come with relevant certifications to ensure quality and compliance.
 
 ## Contact Us
-For more information or to place an order, please contact us at +65 83016969 or visit our website at www.sd-steel.com. Let SD-Steel be your trusted partner in industrial stainless steel solutions!
+For more information or to place an order, please contact us at +65 83016969 or visit our Let SD-Steel be your trusted partner in industrial stainless steel solutions!
 
 ---
 
