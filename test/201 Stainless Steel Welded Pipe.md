@@ -54,4 +54,4 @@ A: Yes, they are suitable for both indoor and outdoor use due to their excellent
 ![Image](https://github.com/user-attachments/assets/2567258e-e124-4816-932d-1809bd27ef0b)
 
 **Contact Us Today!**
-For more information or to place an order, please call us at +65 83016969 or visit our website at www.sd-steel.com.
+For more information or to place an order, please call us at +65 83016969 or visit our 
