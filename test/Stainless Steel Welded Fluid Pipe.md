@@ -35,7 +35,7 @@ At SD-Steel, we pride ourselves on our state-of-the-art manufacturing facilities
 ![Image](https://github.com/user-attachments/assets/2567258e-e124-4816-932d-1809bd27ef0b)
 
 **Contact Us:**
-For more information or to place an order, please reach out to us at +65 83016969 or visit our website at www.sd-steel.com. Trust SD-Steel for all your stainless steel piping needs!
+For more information or to place an order, please reach out to us at +65 83016969
 
 ---
 
