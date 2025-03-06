@@ -42,6 +42,5 @@ SD-Steel has been serving the global market for over two decades. With state-of-
 
 ## Contact Us
 
-For more information or to place an order, please contact us at +65 83016969 or visit our website at www.sd-steel.com.
-
+For more information or to place an order, please contact us at +65 83016969 
 SD-Steel - Your Partner in Quality Steel Solutions!
