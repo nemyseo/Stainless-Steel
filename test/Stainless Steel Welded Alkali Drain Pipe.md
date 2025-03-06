@@ -2,8 +2,6 @@
 
 **Company:** SD-Steel  
 **Contact Number:** +65 83016969  
-**Website:** [www.sd-steel.com](http://www.sd-steel.com)  
-**Email:** info@sd-steel.com
 
 ---
 
