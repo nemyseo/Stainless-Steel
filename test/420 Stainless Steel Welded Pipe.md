@@ -56,7 +56,7 @@ A2: Yes, the 420 Stainless Steel Welded Pipes have excellent corrosion resistanc
 A3: These pipes can operate effectively up to temperatures of around 500°C.
 
 **Q4: How can I contact SD-Steel for more information or orders?**
-A4: You can reach us at +65 83016969 or visit our website at www.sd-steel.com.
+A4: You can reach us at +65 83016969 or visit our website
 
 Order now and experience the quality and reliability that SD-Steel offers!
 
