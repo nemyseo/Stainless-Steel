@@ -44,7 +44,7 @@ A2: Yes, we can accommodate custom orders based on specific project requirements
 A3: Our products comply with international standards such as ASTM A312 and ASME B31.3, ensuring quality and reliability.
 
 ## Contact Us
-For more information or to place an order, please contact us at +65 83016969 or visit our website at [www.sd-steel.com](http://www.sd-steel.com).
+For more information or to place an order, please contact us at +65 83016969 
 
 ---
 
