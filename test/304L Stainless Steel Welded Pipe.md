@@ -2,8 +2,7 @@
 
 **Company:** SD-Steel  
 **Contact Number:** +65 83016969  
-**Email:** info@sd-steel.com  
-**Website:** www.sd-steel.com  
+
 **Address:** 123 Steel Road, Singapore 123456
 
 ---
