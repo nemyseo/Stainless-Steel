@@ -50,6 +50,6 @@ A: You can place an order by contacting us at +65 83016969 or through our websit
 
 For more information or to place an order, please contact us at:
 - Phone: +65 83016969
-- Website: [www.sd-steel.com](http://www.sd-steel.com)
+
 
 Thank you for choosing SD-Steel for your Duplex Stainless Steel Welded Pipe needs!
