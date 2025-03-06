@@ -38,6 +38,6 @@ SD-Steel is a leading manufacturer with over 20 years of experience in the steel
 **Q3:** Are these air pipes suitable for outdoor use?  
 **A3:** Yes, our stainless steel air pipes are highly resistant to weathering and can be used outdoors without significant degradation.
 
-For more information or to place an order, please contact us at +65 83016969 or visit our website at [www.sd-steel.com](http://www.sd-steel.com).
+For more information or to place an order, please contact us at +65 83016969 
 
 SD-Steel – Your Partner in Excellence!
