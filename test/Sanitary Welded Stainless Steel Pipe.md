@@ -47,11 +47,11 @@ A: These pipes offer excellent corrosion resistance, easy cleaning, and a smooth
 A: Yes, we can produce custom sizes based on your requirements. Please contact us for more details.
 
 **Q: How do I place an order?**
-A: You can place an order by contacting us at +65 83016969 or via email at sales@sd-steel.com.
+A: You can place an order by contacting us at +65 83016969 
 
 ## Contact Us
 
-For further inquiries or to place an order, please reach out to us at +65 83016969 or visit our website at www.sd-steel.com. We look forward to serving you!
+For further inquiries or to place an order, please reach out to us at +65 83016969 
 
 ---
 
