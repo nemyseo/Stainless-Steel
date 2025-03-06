@@ -50,4 +50,4 @@ A: Yes, we offer customization options to meet your specific requirements. Pleas
 A: The pipe is designed with thick walls and high-grade stainless steel, which provides superior strength and corrosion resistance, thereby ensuring safety in explosive environments.
 
 ## Contact Us
-For more information or to place an order, please contact us at +65 83016969 or visit our website at [www.sd-steel.com](http://www.sd-steel.com). We look forward to serving you!
+For more information or to place an order, please contact us at +65 83016969 
