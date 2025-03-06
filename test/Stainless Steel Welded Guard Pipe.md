@@ -49,4 +49,4 @@ A2: Yes, we offer customization options to meet specific project requirements. P
 A3: Absolutely! We can provide samples upon request. Contact us at +65 83016969 or visit our website for more information.
 
 ## Contact Us
-For more information or to place an order, please contact us at +65 83016969 or visit our website at [www.sd-steel.com](http://www.sd-steel.com).
+For more information or to place an order, please contact us at +65 83016969
