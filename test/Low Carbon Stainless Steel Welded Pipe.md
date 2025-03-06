@@ -44,7 +44,7 @@ SD-Steel has been a leading supplier of high-quality steel products for over two
 
 ## Contact Us
 
-For more information or to place an order, please contact us at +65 83016969 or visit our website at www.sd-steel.com. 
+For more information or to place an order, please contact us at +65 83016969  
 
 ![Image](https://github.com/user-attachments/assets/2567258e-e124-4816-932d-1809bd27ef0b)
 
