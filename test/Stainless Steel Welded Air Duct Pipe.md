@@ -46,4 +46,4 @@ A: Yes, we offer customization services. Please contact us at +65 83016969 to di
 **Q: What certifications do your products have?**
 A: Our Stainless Steel Welded Air Duct Pipes are certified by ISO 9001 and ASME standards, ensuring compliance with international quality and safety norms.
 
-For more information or to place an order, please contact us at +65 83016969 or visit our website at www.sd-steel.com.
+For more information or to place an order, please contact us at +65 83016969 
