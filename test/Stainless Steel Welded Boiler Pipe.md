@@ -43,7 +43,7 @@ A: You can easily place an order by contacting us at +65 83016969 or visiting ou
 **Q: Do you provide custom sizes?**
 A: Yes, we can accommodate custom sizes based on your requirements. Please contact us for more details.
 
-For more information, visit [our website](http://www.sd-steel.com).
+
 
 ![Image](https://github.com/user-attachments/assets/2567258e-e124-4816-932d-1809bd27ef0b)
 
