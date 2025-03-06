@@ -48,7 +48,7 @@ A: Yes, all our products come with a comprehensive warranty. For detailed inform
 
 ![Image](https://github.com/user-attachments/assets/2567258e-e124-4816-932d-1809bd27ef0b)
 
-For further inquiries or to place an order, please contact us at +65 83016969 or visit our website at www.sd-steel.com. We look forward to serving you!
+For further inquiries or to place an order, please contact us at +65 83016969 or visit our website at  We look forward to serving you!
 
 ---
 
