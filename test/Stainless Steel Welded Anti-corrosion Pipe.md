@@ -32,6 +32,6 @@ A: Our pipes are made from high-grade stainless steel, which inherently offers e
 A: Yes, we offer customization options including specific lengths, diameters, and finishes to meet your unique requirements.
 
 **Q: How do I contact you for more information or to place an order?**
-A: For any inquiries or to place an order, please call us at +65 83016969 or visit our website at www.sd-steel.com.
+A: For any inquiries or to place an order, please call us at +65 83016969 
 
 Choose SD-Steel for unparalleled quality and reliability. Trust us to deliver the best in stainless steel welded anti-corrosion pipes!
