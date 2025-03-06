@@ -56,4 +56,3 @@ A3: Delivery times vary depending on the order size and destination. Typically, 
 Visit us today and experience the difference with SD-Steel!
 
 Contact Us: +65 83016969  
-Website: [www.sd-steel.com](http://www.sd-steel.com)
