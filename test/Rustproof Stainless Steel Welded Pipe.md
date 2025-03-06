@@ -63,7 +63,7 @@ A: You can place your order directly through our website or contact us at +65 83
 
 ## Contact Us
 
-For more information or to place an order, please contact us at +65 83016969 or visit our website at www.sd-steel.com.
+For more information or to place an order, please contact us at +65 83016969 or visit
 
 ---
 
