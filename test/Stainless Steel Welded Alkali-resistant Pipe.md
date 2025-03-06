@@ -42,6 +42,6 @@ A1: Our pipe is made from premium-grade 316L stainless steel, offering superior 
 A2: Yes, we offer customization options for both length and diameter based on your specific requirements. Please contact us at +65 83016969 to discuss your needs.
 
 **Q3: How can I place an order?**
-A3: You can place an order by contacting us at +65 83016969 or via email at sales@sd-steel.com. Our sales team will be happy to assist you with your purchase.
+A3: You can place an order by contacting us at +65 83016969
 
 Contact us today to learn more about how our Stainless Steel Welded Alkali-resistant Pipe can meet your industrial needs!
