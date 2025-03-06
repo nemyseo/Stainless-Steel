@@ -36,7 +36,7 @@ A1: Our pipes are made from high-grade stainless steel (AISI 304, AISI 316).
 A2: Yes, we offer customization services. Please contact us for more details.
 
 **Q3: How do I place an order?**
-A3: You can place an order by contacting us at +65 83016969 or via email at info@sd-steel.com.
+A3: You can place an order by contacting us at +65 83016969 
 
 ## Contact Us
 For more information or to place an order, please contact us at +65 83016969. We look forward to serving you!
